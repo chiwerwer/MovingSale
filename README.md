@@ -8,6 +8,7 @@
 - Marshalls grey single chair 单人布艺懒人椅 ~~$60~~ $30 
 - Marshalls small coffee table 小茶几 ~~$30~~ $20
 - Round rug 白色圆地毯 $10
+- IKEA Knubbig table lamp with bulb 宜家玻璃台灯 $10
 ![IMG_20210919_150937](https://user-images.githubusercontent.com/91032527/133942798-a9f4acc7-b849-42d5-a147-a4f4f494e782.jpg)
 
 ##### Study Room
