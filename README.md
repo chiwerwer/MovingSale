@@ -1,5 +1,5 @@
 # MovingSale
-### moving out of state, have to go quick, all first hand, <4 years, like new
+### moving out of state, have to go quick, all first hand, like new
 ##### Living Room
 - IKEA Karlstad three seat sofa 宜家三人沙发  ~~$499~~  $199
 - IKEA Kallax walnut light grey shelf unit * 2 with drawer 两件宜家浅灰四格书架带抽屉 ~~$45each~~  $30each
