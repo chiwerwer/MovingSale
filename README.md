@@ -6,6 +6,8 @@ Location: Houston TX 77043
 位置在休斯敦邮编77043
 Pick up strongly preferred
 请尽量自取
+If you are a neighbor, come ring the doorbell! Puppy in house, mind your step :D
+如果您是我的邻居，欢迎随时来敲门。家里有超热情奶狗一只，出入小心 ：D
 Cash/Zelle(QuickPay)/Venmo accepted. 
 现金或Zelle(QuickPay)/Venmo结算均可
 Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious buyers only :)
