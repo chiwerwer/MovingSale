@@ -67,9 +67,12 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 ##### Garage 
 - **[pending]** A nomral bike 自行车 $20
 - Golf club set(grey/pinkish) 高尔夫球杆（灰色带一点粉色）$50
+- Inversion table (back pain relief) 倒立机 $100
 - More to come，not there yet
 - 稍后更新其他
 ![PXL_20210919_225441424_2](https://user-images.githubusercontent.com/91032527/133945863-ca894433-8c3f-4495-a770-6200eaf3abcf.jpg)
+![PXL_20210715_002319517](https://user-images.githubusercontent.com/7112055/134077018-d8153097-66b6-4ecd-9e15-15fce632577d.jpg)
+
 
 ##### MISC
 - ~~Large mirror　大落地镜 $30~~
