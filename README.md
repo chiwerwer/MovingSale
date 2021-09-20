@@ -12,18 +12,18 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 联系Tiffany，邮箱peipmemeda@gmail.com 或 +17374715058, 非诚勿扰 ：）
 ```
 ##### Living Room 客厅
-- IKEA Karlstad three seat sofa 宜家三人沙发  ~~$499~~  $199
-- ~~IKEA Kallax walnut light grey shelf unit * 2 with drawer 两件宜家浅灰四格书架带抽屉 ~~$45each~~  $30each~~
+- [pending]IKEA Karlstad three seat sofa 宜家三人沙发  ~~$499~~  $199
+- [pending] IKEA Kallax walnut light grey shelf unit * 2 with drawer 两件宜家浅灰四格书架带抽屉 ~~$45each~~  $30each
 - IKEA kallax white self unit 宜家白色四格书架 ~~$50~~ $30
 - IKEA Samtid floor reading lamp 宜家落地读书灯 ~~$50~~ $30
-- Marshalls grey single chair 单人布艺懒人椅 ~~$60~~ $30
-- Marshalls small coffee table 小茶几 ~~$30~~ $20
+- [pending] Marshalls grey single chair 单人布艺懒人椅 ~~$60~~ $30
+- [pending] Marshalls small coffee table 小茶几 ~~$30~~ $20
 - Round rug 白色圆地毯 $10
 - IKEA Knubbig table lamp with bulb 宜家玻璃台灯 $10
 ![PXL_20210919_200746445 (1)](https://user-images.githubusercontent.com/91032527/133945815-17018a0d-84d9-4de2-8d6a-831093fbfe19.jpg)
 
 ##### Dining Room 饭厅
-- Dining stools gray set of 2 灰色高脚凳两件 $70
+- [pending] Dining stools gray set of 2 灰色高脚凳两件 $70
 - Dining stools white set of 2 白色高脚凳两件 $70
 - ~~Record player 唱片机 $20~~
 - Glass candle Stick set of 2 玻璃烛台两件 $30
@@ -52,7 +52,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - IKEA Kallax shelf white with two drawers 宜家十二格带俩布抽屉 $70
 - Wood stool 木头高脚凳 $5
 - Chair mat for carpet heavy duty 地毯用办公椅垫（很厚很结实） $30
-- White board 白板 $40
+- ~~White board 白板 $40~~
 ![PXL_20210919_213521307_2](https://user-images.githubusercontent.com/91032527/133946301-ff922dc5-3d68-47b2-9020-895a2e55df10.jpg)
 ![PXL_20210919_213623610](https://user-images.githubusercontent.com/91032527/133945855-0ba15476-673b-44ce-95a6-702d24a5021c.jpg)
 ![PXL_20210919_213724526](https://user-images.githubusercontent.com/91032527/133945856-8f41db5a-a8aa-4677-80bd-297f98d793b0.jpg)
