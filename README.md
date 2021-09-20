@@ -11,10 +11,10 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 ```
 ##### Living Room 客厅
 - IKEA Karlstad three seat sofa 宜家三人沙发  ~~$499~~  $199
-- IKEA Kallax walnut light grey shelf unit * 2 with drawer 两件宜家浅灰四格书架带抽屉 ~~$45each~~  $30each
+- ~~IKEA Kallax walnut light grey shelf unit * 2 with drawer 两件宜家浅灰四格书架带抽屉 ~~$45each~~  $30each~~
 - IKEA kallax white self unit 宜家白色四格书架 ~~$50~~ $30
 - IKEA Samtid floor reading lamp 宜家落地读书灯 ~~$50~~ $30
-- Marshalls grey single chair 单人布艺懒人椅 ~~$60~~ $30 
+- Marshalls grey single chair 单人布艺懒人椅 ~~$60~~ $30
 - Marshalls small coffee table 小茶几 ~~$30~~ $20
 - Round rug 白色圆地毯 $10
 - IKEA Knubbig table lamp with bulb 宜家玻璃台灯 $10
@@ -23,7 +23,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 ##### Dining Room 饭厅
 - Dining stools gray set of 2 灰色高脚凳两件 $70
 - Dining stools white set of 2 白色高脚凳两件 $70
-- Record player 唱片机 $20
+- ~~Record player 唱片机 $20~~
 - Glass candle Stick set of 2 玻璃烛台两件 $30
 - Dishes/bowls (liquor not included!) 盘子/碗 TBD
 - Slow cooker 慢炖锅 $20
@@ -45,7 +45,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 
 ##### Study Room　书房
 - IKEA Bekant desk white 宜家电脑桌白色 $80
-- IKEA Bekant desk black 宜家电脑桌黑色 $80
+- ~~IKEA Bekant desk black 宜家电脑桌黑色 $80~~
 - IKEA Langfjall chair with arm rest 宜家电脑椅带扶手 $80
 - IKEA Kallax shelf white with two drawers 宜家十二格带俩布抽屉 $70
 - Wood stool 木头高脚凳 $5
@@ -64,8 +64,8 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 ![PXL_20210919_225441424_2](https://user-images.githubusercontent.com/91032527/133945863-ca894433-8c3f-4495-a770-6200eaf3abcf.jpg)
 
 ##### MISC
-- Large mirror　大落地镜 $30
-- Small mirror 小穿衣镜　$10
+- ~~Large mirror　大落地镜 $30~~
+- ~~Small mirror 小穿衣镜　$10~~
 - Bed headboard full size fabric 床头板 $40
 ![PXL_20210919_222530853_2](https://user-images.githubusercontent.com/91032527/133946328-494f8ec3-e0c0-4a74-b01a-5252fee713e4.jpg)
 ![PXL_20210919_213454542_2](https://user-images.githubusercontent.com/91032527/133945872-1f3bc353-68b2-4827-8100-72a7046feb9a.jpg)
