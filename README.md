@@ -6,8 +6,6 @@ Location: Houston TX 77043
 位置在休斯敦邮编77043
 Pick up strongly preferred
 请尽量自取
-If you are a neighbor, come ring the doorbell! Puppy in house, mind your step :D
-如果您是我的邻居，欢迎随时来敲门。家里有超热情奶狗一只，出入小心 ：D
 Cash/Zelle(QuickPay)/Venmo accepted. 
 现金或Zelle(QuickPay)/Venmo结算均可
 Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious buyers only :)
@@ -58,6 +56,13 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 ![PXL_20210919_213623610](https://user-images.githubusercontent.com/91032527/133945855-0ba15476-673b-44ce-95a6-702d24a5021c.jpg)
 ![PXL_20210919_213724526](https://user-images.githubusercontent.com/91032527/133945856-8f41db5a-a8aa-4677-80bd-297f98d793b0.jpg)
 ![PXL_20210919_213758188_2](https://user-images.githubusercontent.com/91032527/133945857-8878a7c0-33ed-4c12-ab2e-3c5f8bb15401.jpg)
+
+##### Electronic stuff
+- Bunch of tech stuff selling 
+![Untitled drawing](https://user-images.githubusercontent.com/7112055/134068840-a4152213-7f8c-4f5b-a6ae-5134f3388490.jpg)
+- Old devices, power bank and cables $1 or give away
+![IMG_20210920_144055](https://user-images.githubusercontent.com/7112055/134068920-237a14ad-477b-4fee-9153-4c80a416d2db.jpg)
+
 
 ##### Garage 
 - **[pending]** A nomral bike 自行车 $20
