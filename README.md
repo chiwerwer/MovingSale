@@ -6,6 +6,8 @@ Location: Houston TX 77043
 位置在休斯敦邮编77043
 Pick up strongly preferred
 请尽量自取
+Cash/Zelle(QuickPay)/Venmo accepted. 
+现金或Zelle(QuickPay)/Venmo结算均可
 Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious buyers only :)
 联系Tiffany，邮箱peipmemeda@gmail.com 或 +17374715058, 非诚勿扰 ：）
 ```
