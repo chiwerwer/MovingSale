@@ -12,12 +12,12 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 联系Tiffany，邮箱peipmemeda@gmail.com 或 +17374715058, 非诚勿扰 ：）
 ```
 ##### Living Room 客厅
-- **[pending]** IKEA Karlstad three seat sofa 宜家三人沙发  ~~$499~~  $199
+- ~~IKEA Karlstad three seat sofa 宜家三人沙发  ~~$499~~  $199~~
 - **[pending]** IKEA Kallax walnut light grey shelf unit * 2 with drawer 两件宜家浅灰四格书架带抽屉 ~~$45each~~  $30each
-- IKEA kallax white self unit 宜家白色四格书架 ~~$50~~ $30
+- **[pending]** IKEA kallax white self unit 宜家白色四格书架 ~~$50~~ $30
 - IKEA Samtid floor reading lamp 宜家落地读书灯 ~~$50~~ $30
 - **[pending]** Marshalls grey single chair 单人布艺懒人椅 ~~$60~~ $30
-- **[pending]** Marshalls small coffee table 小茶几 ~~$30~~ $20
+- ~~Marshalls small coffee table 小茶几 ~~$30~~ $20~~
 - Round rug 白色圆地毯 $10
 - IKEA Knubbig table lamp with bulb 宜家玻璃台灯 $10
 ![PXL_20210919_200746445 (1)](https://user-images.githubusercontent.com/91032527/133945815-17018a0d-84d9-4de2-8d6a-831093fbfe19.jpg)
@@ -30,8 +30,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - Dishes/bowls (liquor not included!) 盘子/碗 TBD
 - Slow cooker 慢炖锅 $20
 - Rice cooker 饭锅 $15
-- Water pot 水壶 $5
-- Random pots 三只锅 TBD
+- ~~Water pot 水壶 $5~~
 - Small oven 小烤箱 $15
 - Toaster 烤面包机  $5
 - Espresso capsule rack 咖啡胶囊架 $5
