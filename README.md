@@ -1,12 +1,14 @@
 # MovingSale 搬家甩卖
-### moving out of state, have to go now, all furnitures are first hand, like new
-#### 搬离德州卖家具，越快越好，家具都是一手，基本新
-### location: Houston TX 77043
-#### 位置在休斯敦邮编77043
-### pick up strongly preferred
-#### 请尽量自取
-### contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious buyers only :)
-#### 联系Tiffany，邮箱peipmemeda@gmail.com 或 +17374715058, 非诚勿扰 ：）
+```
+Moving out of state, have to go now, all furnitures are first hand, like new
+搬离德州卖家具，越快越好，家具都是一手，基本新
+Location: Houston TX 77043
+位置在休斯敦邮编77043
+Pick up strongly preferred
+请尽量自取
+Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious buyers only :)
+联系Tiffany，邮箱peipmemeda@gmail.com 或 +17374715058, 非诚勿扰 ：）
+```
 ##### Living Room 客厅
 - IKEA Karlstad three seat sofa 宜家三人沙发  ~~$499~~  $199
 - IKEA Kallax walnut light grey shelf unit * 2 with drawer 两件宜家浅灰四格书架带抽屉 ~~$45each~~  $30each
