@@ -34,7 +34,9 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - Small oven 小烤箱 $15
 - Toaster 烤面包机  $5
 - ~~Espresso capsule rack 咖啡胶囊架 $5~~
+- ~~Mortar 捣蒜碗 $5 ～～
 - ~~GNC blender GNC小搅拌机 $15~~
+- ~~Glass teapot 玻璃茶壶 $20～～
 - Glassware　玻璃杯子 TBD
 - Ask if you see something interesting but I forgot to include
 - 若对图中未列出的物品感兴趣可详询　（太懒了其实）
