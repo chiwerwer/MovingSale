@@ -33,8 +33,8 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - ~~Water pot 水壶 $5~~
 - Small oven 小烤箱 $15
 - Toaster 烤面包机  $5
-- Espresso capsule rack 咖啡胶囊架 $5
-- GNC blender GNC小搅拌机 $15
+- ~~Espresso capsule rack 咖啡胶囊架 $5~~
+- ~~GNC blender GNC小搅拌机 $15~~
 - Glassware　玻璃杯子 TBD
 - Ask if you see something interesting but I forgot to include
 - 若对图中未列出的物品感兴趣可详询　（太懒了其实）
@@ -49,7 +49,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - ~~IKEA Bekant desk black 宜家电脑桌黑色 $80~~
 - IKEA Langfjall chair with arm rest 宜家电脑椅带扶手 $80
 - IKEA Kallax shelf white with two drawers 宜家十二格带俩布抽屉 $70
-- Wood stool 木头高脚凳 $5
+- **[pending]** Wood stool 木头高脚凳 $5
 - Chair mat for carpet heavy duty 地毯用办公椅垫（很厚很结实） $30
 - ~~White board 白板 $40~~
 ![PXL_20210919_213521307_2](https://user-images.githubusercontent.com/91032527/133946301-ff922dc5-3d68-47b2-9020-895a2e55df10.jpg)
@@ -67,7 +67,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 ##### Garage 
 - **[pending]** A nomral bike 自行车 $20
 - Golf club set(grey/pinkish) 高尔夫球杆（灰色带一点粉色）$50
-- Inversion table (back pain relief) 倒立机 $100
+- **[pending]** Inversion table (back pain relief) 倒立机 $100
 - More to come，not there yet
 - 稍后更新其他
 ![PXL_20210919_225441424_2](https://user-images.githubusercontent.com/91032527/133945863-ca894433-8c3f-4495-a770-6200eaf3abcf.jpg)
@@ -76,7 +76,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 
 ##### MISC
 - ~~Large mirror　大落地镜 $30~~
-- ~~Small mirror 小穿衣镜　$10~~
+- **[pending]** Small mirror 小穿衣镜　$10
 - **[pending]** Bed headboard full size fabric 床头板 $40
 ![PXL_20210919_222530853_2](https://user-images.githubusercontent.com/91032527/133946328-494f8ec3-e0c0-4a74-b01a-5252fee713e4.jpg)
 ![PXL_20210919_213454542_2](https://user-images.githubusercontent.com/91032527/133945872-1f3bc353-68b2-4827-8100-72a7046feb9a.jpg)
