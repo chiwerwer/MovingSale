@@ -13,8 +13,8 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 ```
 ##### Living Room 客厅
 - ~~IKEA Karlstad three seat sofa 宜家三人沙发  ~~$499~~  $199~~
-- **[pending]** IKEA Kallax walnut light grey shelf unit * 2 with drawer 两件宜家浅灰四格书架带抽屉 ~~$45each~~  $30each
-- **[pending]** IKEA kallax white self unit 宜家白色四格书架 ~~$50~~ $30
+- ~~IKEA Kallax walnut light grey shelf unit * 2 with drawer 两件宜家浅灰四格书架带抽屉 ~~$45each~~  $30each~~
+- ~~IKEA kallax white self unit 宜家白色四格书架 ~~$50~~ $30~~
 - IKEA Samtid floor reading lamp 宜家落地读书灯 ~~$50~~ $30
 - **[pending]** Marshalls grey single chair 单人布艺懒人椅 ~~$60~~ $30
 - ~~Marshalls small coffee table 小茶几 ~~$30~~ $20~~
@@ -24,17 +24,17 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 
 ##### Dining Room 饭厅
 - **[pending]** Dining stools gray set of 2 灰色高脚凳两件 $70
-- Dining stools white set of 2 白色高脚凳两件 $70
+- **[pending]** Dining stools white set of 2 白色高脚凳两件 $70
 - ~~Record player 唱片机 $20~~
 - Glass candle Stick set of 2 玻璃烛台两件 $30
 - Dishes/bowls (liquor not included!) 盘子/碗 TBD
 - Slow cooker 慢炖锅 $20
 - Rice cooker 饭锅 $15
 - ~~Water pot 水壶 $5~~
-- Small oven 小烤箱 $15
-- Toaster 烤面包机  $5
+- ~~Small oven 小烤箱 $15~~
+- ~~Toaster 烤面包机  $5~~
 - ~~Espresso capsule rack 咖啡胶囊架 $5~~
-- ~~Mortar 捣蒜碗 $5 ～～
+- ~~Mortar 捣蒜碗 $5~~
 - ~~GNC blender GNC小搅拌机 $15~~
 - ~~Glass teapot 玻璃茶壶 $20～～
 - Glassware　玻璃杯子 TBD
@@ -51,7 +51,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - ~~IKEA Bekant desk black 宜家电脑桌黑色 $80~~
 - IKEA Langfjall chair with arm rest 宜家电脑椅带扶手 $80
 - IKEA Kallax shelf white with two drawers 宜家十二格带俩布抽屉 $70
-- **[pending]** Wood stool 木头高脚凳 $5
+- ~~Wood stool 木头高脚凳 $5~~
 - Chair mat for carpet heavy duty 地毯用办公椅垫（很厚很结实） $30
 - ~~White board 白板 $40~~
 ![PXL_20210919_213521307_2](https://user-images.githubusercontent.com/91032527/133946301-ff922dc5-3d68-47b2-9020-895a2e55df10.jpg)
@@ -67,14 +67,13 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 
 
 ##### Garage 
-- **[pending]** A nomral bike 自行车 $20
-- Golf club set(grey/pinkish) 高尔夫球杆（灰色带一点粉色）$50
-- **[pending]** Inversion table (back pain relief) 倒立机 $100
+- ~~A nomral bike 自行车 $20~~
+- ~~Golf club set(grey/pinkish) 高尔夫球杆（灰色带一点粉色）$50~~
+- ~~Inversion table (back pain relief) 倒立机 $100~~
 - More to come，not there yet
 - 稍后更新其他
 ![PXL_20210919_225441424_2](https://user-images.githubusercontent.com/91032527/133945863-ca894433-8c3f-4495-a770-6200eaf3abcf.jpg)
 ![PXL_20210715_002319517](https://user-images.githubusercontent.com/7112055/134077018-d8153097-66b6-4ecd-9e15-15fce632577d.jpg)
-
 
 ##### MISC
 - ~~Large mirror　大落地镜 $30~~
