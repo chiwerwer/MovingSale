@@ -74,6 +74,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - ~~Inversion table (back pain relief) 倒立机 $100~~
 - Bikemate trunck 2 bike rack 车用双自行车架 $30
 - Metal bed frame king size 床架 $30
+- IKEA silver rack (behind the dog playpen) brand new 宜家置物架全新 $30
 - More to come，not there yet
 - 稍后更新其他
 ![PXL_20210922_215425235](https://user-images.githubusercontent.com/91032527/134452523-8f74aa7f-8cec-49ca-9575-f5406d554c58.jpg)
