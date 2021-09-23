@@ -16,7 +16,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - ~~IKEA Kallax walnut light grey shelf unit * 2 with drawer 两件宜家浅灰四格书架带抽屉 ~~$45each~~  $30each~~
 - ~~IKEA kallax white self unit 宜家白色四格书架 ~~$50~~ $30~~
 - IKEA Samtid floor reading lamp 宜家落地读书灯 ~~$50~~ $30
-- **[pending]** Marshalls grey single chair 单人布艺懒人椅 ~~$60~~ $30
+- ~~Marshalls grey single chair 单人布艺懒人椅 ~~$60~~ $30~~
 - ~~Marshalls small coffee table 小茶几 ~~$30~~ $20~~
 - Round rug 白色圆地毯 $10
 - IKEA Knubbig table lamp with bulb 宜家玻璃台灯 $10
@@ -60,7 +60,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 ![PXL_20210919_213758188_2](https://user-images.githubusercontent.com/91032527/133945857-8878a7c0-33ed-4c12-ab2e-3c5f8bb15401.jpg)
 
 ##### Electronic stuff
-- Bunch of tech stuff selling 
+- See in image below 见下图 
 ![Untitled drawing](https://user-images.githubusercontent.com/7112055/134068840-a4152213-7f8c-4f5b-a6ae-5134f3388490.jpg)
 - Old devices, power bank and cables $1 or give away
 ![IMG_20210920_144055](https://user-images.githubusercontent.com/7112055/134068920-237a14ad-477b-4fee-9153-4c80a416d2db.jpg)
@@ -78,7 +78,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 ##### MISC
 - ~~Large mirror　大落地镜 $30~~
 - **[pending]** Small mirror 小穿衣镜　$10
-- **[pending]** Bed headboard full size fabric 床头板 $40
+- ~~Bed headboard full size fabric 床头板 $40~~
 ![PXL_20210919_222530853_2](https://user-images.githubusercontent.com/91032527/133946328-494f8ec3-e0c0-4a74-b01a-5252fee713e4.jpg)
 ![PXL_20210919_213454542_2](https://user-images.githubusercontent.com/91032527/133945872-1f3bc353-68b2-4827-8100-72a7046feb9a.jpg)
 ![PXL_20210919_213418011_2](https://user-images.githubusercontent.com/91032527/133945874-a310422e-2710-40ea-af63-b17707aaba64.jpg)
