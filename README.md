@@ -86,7 +86,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - ~~Large mirror　大落地镜 $30~~
 - **[pending]** Small mirror 小穿衣镜　$10
 - ~~Bed headboard full size fabric 床头板 $40~~
-- Shoe shelf white * 4 鞋架白色四件 $10 each
+- **[pending]** Shoe shelf white * 4 鞋架白色四件 $10 each
 - Dog playpen 8 panels 狗狗围栏 $30
 - Air matress queen size 充气床垫 $50
 ![PXL_20210922_215425235](https://user-images.githubusercontent.com/91032527/134452759-55d46498-7617-44cd-8648-e92d7d6c168d.jpg)
