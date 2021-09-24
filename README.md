@@ -47,10 +47,10 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 ![PXL_20210919_221635485](https://user-images.githubusercontent.com/91032527/133945844-af9a6ebd-5ff3-4f20-97e5-4c1f96e71745.jpg)
 
 ##### Study Room　书房
-- IKEA Bekant desk white 宜家电脑桌白色 $80
+- ~~IKEA Bekant desk white 宜家电脑桌白色 $80~~
 - ~~IKEA Bekant desk black 宜家电脑桌黑色 $80~~
-- IKEA Langfjall chair with arm rest 宜家电脑椅带扶手 $80
-- IKEA Kallax shelf white with two drawers 宜家十二格带俩布抽屉 $70
+- ~~IKEA Langfjall chair with arm rest 宜家电脑椅带扶手 $80~~
+- ~~IKEA Kallax shelf white with two drawers 宜家十二格带俩布抽屉 $70~~
 - ~~Wood stool 木头高脚凳 $5~~
 - Chair mat for carpet heavy duty 地毯用办公椅垫（很厚很结实） $30
 - ~~White board 白板 $40~~
@@ -74,7 +74,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - ~~Inversion table (back pain relief) 倒立机 $100~~
 - Bikemate trunck 2 bike rack 车用双自行车架 $30
 - Metal bed frame king size 床架 $30
-- IKEA silver rack (behind the dog playpen) brand new 宜家置物架全新 $30
+- ~~IKEA silver rack (behind the dog playpen) brand new 宜家置物架全新 $30~~
 - More to come，not there yet
 - 稍后更新其他
 ![PXL_20210922_215425235](https://user-images.githubusercontent.com/91032527/134452523-8f74aa7f-8cec-49ca-9575-f5406d554c58.jpg)
