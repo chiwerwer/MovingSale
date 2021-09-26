@@ -23,13 +23,13 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 ![PXL_20210919_200746445 (1)](https://user-images.githubusercontent.com/91032527/133945815-17018a0d-84d9-4de2-8d6a-831093fbfe19.jpg)
 
 ##### Dining Room 饭厅
-- **[pending]** Dining stools gray set of 2 灰色高脚凳两件 $70
+- ~~Dining stools gray set of 2 灰色高脚凳两件 $70~~
 - **[pending]** Dining stools white set of 2 白色高脚凳两件 $70
 - ~~Record player 唱片机 $20~~
-- Glass candle Stick set of 2 玻璃烛台两件 $30
-- Dishes/bowls (liquor not included!) 盘子/碗 TBD
-- Slow cooker 慢炖锅 $20
-- Rice cooker 饭锅 $15
+- ~~Glass candle Stick set of 2 玻璃烛台两件 $30~~
+- ~~Dishes/bowls (liquor not included!) 盘子/碗 TBD~~
+- ~~Slow cooker 慢炖锅 $20~~
+- ~~Rice cooker 饭锅 $15~~
 - ~~Water pot 水壶 $5~~
 - ~~Small oven 小烤箱 $15~~
 - ~~Toaster 烤面包机  $5~~
@@ -37,7 +37,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - ~~Mortar 捣蒜碗 $5~~
 - ~~GNC blender GNC小搅拌机 $15~~
 - ~~Glass teapot 玻璃茶壶 $20~~
-- Glassware　玻璃杯子 TBD
+- ~~Glassware　玻璃杯子 TBD~~
 - Ask if you see something interesting but I forgot to include
 - 若对图中未列出的物品感兴趣可详询　（太懒了其实）
 ![PXL_20210919_214530813 PORTRAIT_2](https://user-images.githubusercontent.com/91032527/133945826-d49445a8-ae4d-4d41-80e8-8d4e945ca904.jpg)
@@ -54,7 +54,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - ~~Wood stool 木头高脚凳 $5~~
 - Chair mat for carpet heavy duty 地毯用办公椅垫（很厚很结实） $30
 - ~~White board 白板 $40~~
-- large coffee filter 大咖啡机滤纸 $5
+- ~~large coffee filter 大咖啡机滤纸 $5~~
 ![PXL_20210922_214713644](https://user-images.githubusercontent.com/91032527/134452441-2b64dc29-c79a-4524-8e71-d9a6cd2e9134.jpg)
 ![PXL_20210919_213521307_2](https://user-images.githubusercontent.com/91032527/133946301-ff922dc5-3d68-47b2-9020-895a2e55df10.jpg)
 ![PXL_20210919_213623610](https://user-images.githubusercontent.com/91032527/133945855-0ba15476-673b-44ce-95a6-702d24a5021c.jpg)
@@ -62,9 +62,9 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 ![PXL_20210919_213758188_2](https://user-images.githubusercontent.com/91032527/133945857-8878a7c0-33ed-4c12-ab2e-3c5f8bb15401.jpg)
 
 ##### Electronic stuff
-- See in image below 见下图 
+- ~~See in image below 见下图 ~~
 ![Untitled drawing](https://user-images.githubusercontent.com/7112055/134068840-a4152213-7f8c-4f5b-a6ae-5134f3388490.jpg)
-- Old devices, power bank and cables $1 or give away
+- ~~Old devices, power bank and cables $1 or give away~~
 ![IMG_20210920_144055](https://user-images.githubusercontent.com/7112055/134068920-237a14ad-477b-4fee-9153-4c80a416d2db.jpg)
 
 
@@ -72,8 +72,8 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - ~~A nomral bike 自行车 $20~~
 - ~~Golf club set(grey/pinkish) 高尔夫球杆（灰色带一点粉色）$50~~
 - ~~Inversion table (back pain relief) 倒立机 $100~~
-- Bikemate trunck 2 bike rack 车用双自行车架 $30
-- Metal bed frame king size 床架 $30
+- ~~Bikemate trunck 2 bike rack 车用双自行车架 $30~~
+- ~~Metal bed frame king size 床架 $30~~
 - ~~IKEA silver rack (behind the dog playpen) brand new 宜家置物架全新 $30~~
 - More to come，not there yet
 - 稍后更新其他
