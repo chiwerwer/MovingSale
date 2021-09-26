@@ -88,7 +88,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - ~~Bed headboard full size fabric 床头板 $40~~
 - **[pending]** Shoe shelf white * 4 鞋架白色四件 $10 each
 - Dog playpen 8 panels 狗狗围栏 $30
-- Air matress queen size 充气床垫 $50
+- ~~Air matress queen size 充气床垫 $50~~
 ![PXL_20210922_215425235](https://user-images.githubusercontent.com/91032527/134452759-55d46498-7617-44cd-8648-e92d7d6c168d.jpg)
 ![PXL_20210922_215709873](https://user-images.githubusercontent.com/91032527/134452776-20ebd64e-f0f0-485a-b2ec-5ed1a2e52f5e.jpg)
 ![PXL_20210922_222051577](https://user-images.githubusercontent.com/91032527/134452672-47e32dbd-b5e9-40f2-a218-71c287ddd6aa.jpg)
