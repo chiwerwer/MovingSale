@@ -38,8 +38,6 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - ~~GNC blender GNC小搅拌机 $15~~
 - ~~Glass teapot 玻璃茶壶 $20~~
 - ~~Glassware　玻璃杯子 TBD~~
-- Ask if you see something interesting but I forgot to include
-- 若对图中未列出的物品感兴趣可详询　（太懒了其实）
 ![PXL_20210919_214530813 PORTRAIT_2](https://user-images.githubusercontent.com/91032527/133945826-d49445a8-ae4d-4d41-80e8-8d4e945ca904.jpg)
 ![PXL_20210919_220748447](https://user-images.githubusercontent.com/91032527/133945830-6e204162-19b0-4648-9a08-b81cc5adfbea.jpg)
 ![PXL_20210919_220812301](https://user-images.githubusercontent.com/91032527/133945834-266d0adf-03e6-4170-b1ca-81796c9c39df.jpg)
@@ -52,7 +50,7 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - ~~IKEA Langfjall chair with arm rest 宜家电脑椅带扶手 $80~~
 - ~~IKEA Kallax shelf white with two drawers 宜家十二格带俩布抽屉 $70~~
 - ~~Wood stool 木头高脚凳 $5~~
-- Chair mat for carpet heavy duty 地毯用办公椅垫（很厚很结实） $30
+- ~~Chair mat for carpet heavy duty 地毯用办公椅垫（很厚很结实） $30~~
 - ~~White board 白板 $40~~
 - ~~large coffee filter 大咖啡机滤纸 $5~~
 ![PXL_20210922_214713644](https://user-images.githubusercontent.com/91032527/134452441-2b64dc29-c79a-4524-8e71-d9a6cd2e9134.jpg)
@@ -75,8 +73,6 @@ Contact Tiffany，peipmemeda@gmail.com or +17374715058 for more details, serious
 - ~~Bikemate trunck 2 bike rack 车用双自行车架 $30~~
 - ~~Metal bed frame king size 床架 $30~~
 - ~~IKEA silver rack (behind the dog playpen) brand new 宜家置物架全新 $30~~
-- More to come，not there yet
-- 稍后更新其他
 ![PXL_20210922_215425235](https://user-images.githubusercontent.com/91032527/134452523-8f74aa7f-8cec-49ca-9575-f5406d554c58.jpg)
 ![PXL_20210922_214016520](https://user-images.githubusercontent.com/91032527/134452168-7e6adaf3-5775-4970-9e40-14f16099a609.jpg)
 ![PXL_20210919_225441424_2](https://user-images.githubusercontent.com/91032527/133945863-ca894433-8c3f-4495-a770-6200eaf3abcf.jpg)
